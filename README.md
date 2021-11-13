@@ -4,8 +4,7 @@
 <https://disk.yandex.ru/d/Key5a3XgJLazRA>
 <br/>
 <br/>
-##### Видео на youtube с записью геймплея игры: 
-<br/>
+##### Видео на youtube с записью геймплея игры:
 [![](http://img.youtube.com/vi/4F6Gymu6Rbc/0.jpg)](https://youtu.be/4F6Gymu6Rbc)
 <br/>
 <br/>
